@@ -1,4 +1,4 @@
-# 
+# instant DaVinci Resolve for macOS Extension | compressor + multi-cam-editing is the best DaVinci Resolve for macOS extension, featuring compressor and multi-cam-editing. Safe,
 
 
 
